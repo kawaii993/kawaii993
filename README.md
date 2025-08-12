@@ -18,5 +18,5 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with Step Into Society 🚏
 - 💬 Ask me about ANYTHING 🫎
 - 📫 How to reach me: 1132959964@qq.com
-- 😄 Pronouns: Fairy
+- 😄 Pronouns: Takina
 - ⚡ Fun fact: 🔮
